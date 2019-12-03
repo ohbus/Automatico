@@ -1,2 +1,0 @@
-Automatico
-lets do it
